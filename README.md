@@ -1,0 +1,1 @@
+A highly experienced IT professional with expertise in Cloud Computing, shell Scripting and Linux OS command and proven track record in Retail Marketing and Customer Service.ossesses AWS Certified Solutions Architect Certification, AWS Certified Cloud Practitioner Certification, Blockchain & Fintech: Basics, Application & Limitation Certificate and an MBA degree.  
